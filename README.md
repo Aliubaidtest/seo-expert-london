@@ -1,5 +1,5 @@
-# Ali Ubaid | Your Premier SEO Expert in London for Unmatched Growth
+# Ali Ubaid | Your Premier SEO Expert in London for Digital Growth
 
-Unlock your brand's full potential with Ali Ubaid, a seasoned SEO expert in London. With 16+ years of experience, I drive data-driven digital strategies, local SEO, and technical optimization to deliver real, sustainable results.
+Unlock unparalleled digital growth with Ali Ubaid, a seasoned SEO expert in London. Specializing in data-driven strategies, local SEO, and technical optimization to elevate your brand.
 
 This repository was generated for the keyword: "seo expert london".
